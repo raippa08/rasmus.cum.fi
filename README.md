@@ -24,19 +24,19 @@ TYKKÄÄN MERSUISTA EN MARSUISTA.
 syntymäni jälkeen sain ensimmäisen kaverin Santun. EI TÄSTÄ AIHEESTA ENEMPÄÄ :DDDDD 
 
 ### lempi pelini ### 
-Super mario bross 1-2
-Gta V
+Super mario bross 1-2,
+Gta V,
 Minecraft 
 
 siinä ne olivatkin 
 
 #### Lempi yhtyeeni ####
 on vaikea valita mutta luulen että ne on: 
-Metalnight
-hammerfall
-helloween
-nightwish
-kiss
-ac/dc
-arch enemy 
+Metalnight,
+hammerfall,
+helloween,
+nightwish,
+kiss,
+ac/dc,
+arch enemy, 
 
