@@ -21,5 +21,22 @@ koo- ryhmän kaupoissa ei ole edes järhkeä 3 syytä miksi: 1. KALLISTA 2.HOMEI
 TYKKÄÄN MERSUISTA EN MARSUISTA. 
 ## elämäni ## 
 20.7.2008 synnyin lappeenrannan keskus sairaalassa. Kun synnyin tipuin lattialle. Siksi olen tälläinen. 
+syntymäni jälkeen sain ensimmäisen kaverin Santun. EI TÄSTÄ AIHEESTA ENEMPÄÄ :DDDDD 
 
+### lempi pelini ### 
+Super mario bross 1-2
+Gta V
+Minecraft 
+
+siinä ne olivatkin 
+
+#### Lempi yhtyeeni ####
+on vaikea valita mutta luulen että ne on: 
+Metalnight
+hammerfall
+helloween
+nightwish
+kiss
+ac/dc
+arch enemy 
 
