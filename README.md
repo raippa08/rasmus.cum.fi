@@ -18,6 +18,8 @@ Olen kaikkien kaveri tulen kaikkien kanssa toimeen vaikka Vähän vihaa venälä
 tykkään touhuta autotallissa 24/7 jos sinne vaan pääsen. Olen varsinainen PuuhaPete! Eikä siinä vielä kaikki Minusta muusikon tekee yhtyeeni MetalNight ja sielä soittelen pianoa,kitaraa,huilua,bassoa,laulua :D. minä asun joussenossa 10 658 ihmisen joukossa + minä jolloin väkiluvuksi tulee 10 659-HENKILÖÄ. Minut erottaa joukosta taivaan sinisestä sähkömoposta ( KONTIO MOTORS 2.0) , KISS- yhtyeen vaatteista, nahkatakista JA leveästä kävelystä :D 
 tykkään käydä Ass - ryhmän ruokakaupoissa mutta Koo- ryhmän kaupoista en oikein innostu. ass-ryhmän kaupat ovat: halpoja, laadukkaita, niistä löytyy apteekki :D 
 koo- ryhmän kaupoissa ei ole edes järhkeä 3 syytä miksi: 1. KALLISTA 2.HOMEISIA TUOTTEITA. 3. EN TYKKÄÄ. yleisiä sanoja minulla on vittu, perkele, saatana, paska. 
-
+TYKKÄÄN MERSUISTA EN MARSUISTA. 
+## elämäni ## 
+20.7.2008 synnyin lappeenrannan keskus sairaalassa. Kun synnyin tipuin lattialle. Siksi olen tälläinen. 
 
 
