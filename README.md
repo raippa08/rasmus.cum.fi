@@ -13,3 +13,4 @@ aloitin youtube urani 28.12.2015 nimellä "raipealeksanteri p". Kuvasin silloin 
 nykyään kuvaan kaikenlaisia videoita, pääosin Pokémon Go- peli videoita. kuvailen videot valmiiksi ja editoin / julkaisen pari päivää kuvauksen jälkeen. Kuvailen joko kameralla tai puhelimella. editoin Kinemasterilla tai catcut sovellutuksilla :)
  ### musiikki urani ###
  aloitin musiikki urani kunnolla 9 vuotiaana kun minun nenän eteeni tuotiin piano olin aluksi täysin innoissaan kunnes pikkuhiljaa into alkoi hiipumaan. nykyään 2022 minulla on oma yhtye " matalnight " jossa soittelen kitaraa / syntikkaa. 
+ hehhe ( tämä on tehty läpällä MUTTA JOTKUT ASIOISTA ON TOTTA)
