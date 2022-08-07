@@ -1,4 +1,4 @@
  Tervetuloa Rasmuksen sivulle
-hei olen lappeenrantalainen youtubettaja,  urheilia, muusikko ja tiktokkaaja  . Tämä on nettisivuni.
-lempi sivustoja on pornhub.com ja youtube.com  :).
+hei olen lappeenrantalainen NAINEN HEHEHEHE. Tämä on nettisivuni.
+lempi sivustoja on pornhub.com, XVIDEOS, redtube, xnxx youtube.com  :).
 Mitäs muuta...
