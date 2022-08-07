@@ -4,7 +4,7 @@ lempi sivustoja on pornhub.com ja youtube.com  :).
 Mitäs muuta... 
 # urheilu urani 2010-2022 #
 
-Olen voittanut SM- kultaa kehonrakennuksessa vuonna 2022, tarkka ampujana 2020-21 ja kavereitten kesken pidetyt hiihtokisat 2020. voitin hippo kisat hiihdossa 2010 sain pronssia.  Kuvat ovat urastani Urheiliana    
+Olen voittanut SM- kultaa kehonrakennuksessa vuonna 2022, tarkka ampujana 2020-21 ja kavereitten kesken pidetyt hiihtokisat 2020. voitin hippo kisan hiihdossa 2010 sain pronssia.  Kuvat ovat urastani Urheiliana    
 ![Screenshot_20220706-133641](https://user-images.githubusercontent.com/108793909/177532149-1ee0adc1-6fa3-45db-9b23-254d0ed9e854.jpg)
 ![Screenshot_20220706-134613__01](https://user-images.githubusercontent.com/108793909/177533576-657a1e4a-a166-4237-8aae-36cb5c92120c.jpg)
 ![Screenshot_20220706-160516__01](https://user-images.githubusercontent.com/108793909/177558164-1b51e570-62be-4a4f-906a-ef2f487ab13b.jpg)
