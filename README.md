@@ -1,1 +1,2 @@
-# Tervetuloa Rasmuksen sivulle #
+# Tervetuloa hiihtäjien sivulle!#
+Hiihto on elämämme.
