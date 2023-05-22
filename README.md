@@ -1,2 +1,2 @@
-# Tervetuloa hiihtäjien sivulle!#
+# Tervetuloa hiihtäjien sivulle!
 Hiihto on elämämme.
